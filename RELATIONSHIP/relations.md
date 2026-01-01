@@ -1,4 +1,7 @@
-### Summary
+https://www.youtube.com/watch?v=7j4KmvR3R-c&list=PLsRjuO3afXH0yVqVDcOQ0-WUzVihv06dz&index=23
+
+
+
 
 The video lesson provides an introductory guide to discussing **home and family vocabulary in Hindi**, focusing on basic conversational phrases and key family-related terms. It is aimed at beginners learning how to talk about family members, their whereabouts, and simple questions about family structure in Hindi. The instructor explains common words, their meanings, and example sentences to help learners form simple dialogues about their family and home.
 
